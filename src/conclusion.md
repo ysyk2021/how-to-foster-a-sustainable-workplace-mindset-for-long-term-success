@@ -1,5 +1,4 @@
 
-
 In this book, we have explored the concept of sustainability in the workplace and its impact on business success. We have provided strategies for implementing sustainable practices, examples of successful sustainability initiatives, and highlighted the importance of recognizing and rewarding sustainable behaviors.
 
 Summary of Key Points
