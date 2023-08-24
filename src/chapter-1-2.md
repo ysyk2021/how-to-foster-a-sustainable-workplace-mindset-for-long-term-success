@@ -1,5 +1,3 @@
-Overview of Sustainability in the Workplace
-=========================================================
 
 Sustainability has become an increasingly important issue for businesses, and adopting sustainable practices in the workplace is essential for achieving long-term success. A sustainable workplace mindset involves creating a work environment that promotes long-term ecological, social, and economic sustainability.
 

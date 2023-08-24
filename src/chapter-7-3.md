@@ -1,5 +1,3 @@
-Measuring the Effectiveness of Sustainability Strategies
-===================================================================================
 
 Measuring the effectiveness of sustainability strategies is critical for ensuring that organizations are making progress towards their sustainability goals and targets. In this chapter, we will explore how organizations can measure the effectiveness of their sustainability strategies.
 

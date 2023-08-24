@@ -1,5 +1,3 @@
-Chapter 8: Future Directions
-============================
 
 As the world continues to face environmental and social challenges, fostering a sustainable workplace mindset is becoming increasingly important. In this chapter, we will explore future directions for promoting sustainability in the workplace.
 

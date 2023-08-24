@@ -1,5 +1,3 @@
-The Role of Leadership in Supporting Sustainability
-==================================================================================
 
 Leadership support is critical for fostering a sustainable workplace mindset. In this chapter, we will explore the role of leadership in supporting sustainability.
 

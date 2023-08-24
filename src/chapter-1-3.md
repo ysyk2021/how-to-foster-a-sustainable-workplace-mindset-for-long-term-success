@@ -1,5 +1,3 @@
-Importance of Fostering a Sustainable Workplace Mindset for Long-Term Success
-===========================================================================================
 
 In today's world, sustainability has become an increasingly important issue for businesses. Organizations that prioritize sustainability are not only contributing to a better world but also positioning themselves for long-term success. A sustainable workplace mindset involves adopting practices that promote long-term ecological, social, and economic sustainability.
 

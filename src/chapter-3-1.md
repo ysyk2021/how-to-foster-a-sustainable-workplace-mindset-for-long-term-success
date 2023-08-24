@@ -1,5 +1,3 @@
-Understanding the Impact of Sustainability on Business Success
-===========================================================================================================================
 
 Understanding the impact of sustainability on business success is critical for organizations looking to drive long-term growth and profitability. In this chapter, we will explore the ways in which sustainability can impact business success.
 

@@ -1,5 +1,3 @@
-Recognizing and Rewarding Sustainable Behaviors
-===================================================================================================
 
 Cultivating a culture of sustainability is critical for achieving long-term success in the workplace. In this chapter, we will explore how recognizing and rewarding sustainable behaviors can help foster a culture of sustainability.
 

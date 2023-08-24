@@ -1,5 +1,3 @@
-Looking Ahead to the Future of a Workforce that Prioritizes Sustainability
-========================================================================================================
 
 The future is bright for organizations that prioritize sustainability. As society continues to evolve and adapt to changing environmental and social needs, the workforce of the future will increasingly prioritize sustainability in their work. In this chapter, we will explore what the future holds for a workforce that prioritizes sustainability.
 

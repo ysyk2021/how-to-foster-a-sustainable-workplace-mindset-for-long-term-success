@@ -1,5 +1,3 @@
-What is Sustainability?
-============================================================================
 
 Defining sustainability in the workplace is critical for achieving long-term success. In this chapter, we will explore the concept of sustainability and how it applies to the workplace.
 
@@ -34,5 +32,4 @@ Conclusion
 ----------
 
 In conclusion, defining sustainability in the workplace is critical for achieving long-term success. Sustainability involves balancing economic, social, and environmental considerations to ensure that resources are used responsibly and equitably. The three pillars of sustainability - economic, social, and environmental sustainability - represent the interconnectedness of sustainability and the need to balance these considerations. By prioritizing sustainability in the workplace, organizations can drive long-term success and growth while promoting environmental stewardship and social responsibility. We hope that the insights provided in this chapter will serve as a valuable resource for individuals and organizations looking to adopt sustainable practices in the workplace.
-
 

@@ -1,5 +1,3 @@
-Encouraging Employee Engagement in Sustainability Initiatives
-=================================================================================================================
 
 Cultivating a culture of sustainability is critical for fostering a sustainable workplace mindset. In this chapter, we will explore how organizations can encourage employee engagement in sustainability initiatives effectively.
 

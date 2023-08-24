@@ -1,5 +1,3 @@
-Addressing New Challenges in Promoting Sustainability
-===================================================================================
 
 While the future of a sustainable workforce is promising, there are new challenges that organizations must address to promote sustainability. In this chapter, we will explore some of these challenges and strategies for addressing them.
 

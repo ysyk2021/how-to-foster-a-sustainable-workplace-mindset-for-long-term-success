@@ -1,5 +1,3 @@
-Examples of Successful Sustainability Initiatives in Practice
-==================================================================================================================
 
 Defining sustainability in the workplace is critical for achieving long-term success. In this chapter, we will explore examples of successful sustainability initiatives in practice.
 

@@ -1,5 +1,3 @@
-Modeling Sustainable Behaviors and Attitudes
-===========================================================================
 
 Leadership support is critical for fostering a sustainable workplace mindset. In this chapter, we will explore the role of leadership in modeling sustainable behaviors and attitudes.
 

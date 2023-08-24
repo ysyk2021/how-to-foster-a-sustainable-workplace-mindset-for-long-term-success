@@ -1,5 +1,3 @@
-The Costs of Unsustainable Practices
-=================================================================================================
 
 Unsustainable practices can have significant costs for organizations. In this chapter, we will explore the direct and indirect costs of unsustainable practices.
 

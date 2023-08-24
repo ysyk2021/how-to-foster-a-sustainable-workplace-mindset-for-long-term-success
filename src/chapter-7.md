@@ -1,5 +1,3 @@
-Chapter 6: Implementation
-=========================
 
 Implementation is a critical aspect of fostering a sustainable workplace mindset for long-term success. In this chapter, we will explore three key areas related to implementation: implementing strategies for fostering a sustainable workplace mindset, overcoming barriers to effective implementation, and measuring the effectiveness of sustainability strategies.
 

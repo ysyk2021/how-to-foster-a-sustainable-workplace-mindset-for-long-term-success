@@ -1,5 +1,3 @@
-Reducing Waste and Resource Consumption
-======================================================================================
 
 Reducing waste and resource consumption is a key element of implementing sustainable practices in the workplace. In this chapter, we will explore how organizations can reduce waste and resource consumption effectively.
 

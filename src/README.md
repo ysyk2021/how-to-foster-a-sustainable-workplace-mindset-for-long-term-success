@@ -1,4 +1,4 @@
-# Introduction
+
 
 Welcome to "How to Foster a Sustainable Workplace Mindset for Long-Term Success". In today's world, organizations are increasingly recognizing the importance of sustainability in achieving long-term success. A sustainable workplace mindset emphasizes the need to balance economic, environmental, and social considerations in decision-making.
 

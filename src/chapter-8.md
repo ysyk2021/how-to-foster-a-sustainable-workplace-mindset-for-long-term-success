@@ -1,5 +1,3 @@
-Chapter 7: Leadership Support
-=============================
 
 Leadership support is critical for fostering a sustainable workplace mindset. In this chapter, we will explore the role of leadership in promoting sustainability and addressing challenges and setbacks.
 

@@ -1,5 +1,3 @@
-Chapter 2: The Impact of Sustainability on Business Success
-===========================================================
 
 Understanding the impact of sustainability on business success is critical for fostering a sustainable workplace mindset. In this chapter, we will explore three key areas related to the impact of sustainability on business success: understanding the impact of sustainability, the costs of unsustainable practices, and the risks to reputation, employee engagement, and profitability.
 

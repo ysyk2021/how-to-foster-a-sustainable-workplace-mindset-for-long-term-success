@@ -1,5 +1,3 @@
-The Benefits of Sustainable Practices in the Workplace
-===========================================================================================================
 
 Defining sustainability in the workplace is critical for achieving long-term success. In this chapter, we will explore the concept of sustainability in the workplace and its benefits.
 

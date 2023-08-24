@@ -1,5 +1,3 @@
-Chapter 3: Developing Awareness and Knowledge
-=============================================
 
 Developing awareness and knowledge is the first step towards fostering a sustainable workplace mindset. In this chapter, we will explore three key areas for developing awareness and knowledge: understanding the principles of sustainability, identifying areas for improvement, and staying informed about industry trends and best practices.
 

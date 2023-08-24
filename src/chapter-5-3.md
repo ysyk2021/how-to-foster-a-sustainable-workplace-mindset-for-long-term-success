@@ -1,5 +1,3 @@
-Encouraging Sustainable Transportation and Commuting
-===================================================================================================
 
 Encouraging sustainable transportation and commuting is critical for reducing carbon emissions and promoting environmental sustainability. In this chapter, we will explore how organizations can encourage sustainable transportation and commuting practices.
 

@@ -1,5 +1,3 @@
-Chapter 5: Cultivating a Culture of Sustainability
-==================================================
 
 Cultivating a culture of sustainability is essential for fostering a sustainable workplace mindset. In this chapter, we will explore three key areas for cultivating a culture of sustainability: encouraging employee engagement in sustainability initiatives, setting sustainability goals and targets, and recognizing and rewarding sustainable behaviors.
 

@@ -1,5 +1,3 @@
-Chapter 1: Defining Sustainability in the Workplace
-===================================================
 
 Defining sustainability in the workplace is critical for fostering a sustainable workplace mindset. In this chapter, we will explore three key areas related to defining sustainability in the workplace: what is sustainability, the benefits of sustainable practices in the workplace, and examples of successful sustainability initiatives in practice.
 
@@ -40,5 +38,4 @@ Conclusion
 ----------
 
 In conclusion, defining sustainability in the workplace is critical for fostering a sustainable workplace mindset. Sustainability involves taking actions that promote long-term ecological, social, and economic sustainability. Organizations that prioritize sustainability can achieve several benefits, such as cost savings, enhanced reputation, and improved employee engagement. Moreover, successful sustainability initiatives in practice demonstrate that organizations can drive long-term success while promoting environmental stewardship and social responsibility.
-
 

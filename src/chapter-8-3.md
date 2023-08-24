@@ -1,5 +1,3 @@
-Addressing Challenges and Setbacks
-=================================================================
 
 Leadership support is critical for fostering a sustainable workplace mindset. In this chapter, we will explore how leaders can address challenges and setbacks related to sustainability initiatives.
 

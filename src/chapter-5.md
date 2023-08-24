@@ -1,5 +1,3 @@
-Chapter 4: Implementing Sustainable Practices
-=============================================
 
 Implementing sustainable practices is essential for fostering a sustainable workplace mindset. In this chapter, we will explore three key areas where organizations can implement sustainable practices: reducing waste and resource consumption, promoting energy efficiency, and encouraging sustainable transportation and commuting.
 

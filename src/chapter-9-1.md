@@ -1,5 +1,3 @@
-Innovations in Fostering a Sustainable Workplace Mindset
-======================================================================================
 
 Fostering a sustainable workplace mindset is an ongoing process that requires continuous improvement and innovation. In this chapter, we will explore some future directions and innovations in fostering a sustainable workplace mindset.
 

@@ -1,5 +1,3 @@
-The Risks to Reputation, Employee Engagement, and Profitability
-============================================================================================================================
 
 Sustainability has a significant impact on business success. In this chapter, we will explore the risks to reputation, employee engagement, and profitability that can arise when organizations do not prioritize sustainability.
 

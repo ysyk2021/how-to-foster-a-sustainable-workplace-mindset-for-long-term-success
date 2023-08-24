@@ -1,5 +1,3 @@
-Setting Sustainability Goals and Targets
-============================================================================================
 
 Setting sustainability goals and targets is critical for cultivating a culture of sustainability in the workplace. In this chapter, we will explore how organizations can set effective sustainability goals and targets.
 
