@@ -1,5 +1,4 @@
-Chapter 7: Implementing Strategies for Fostering a Sustainable Workplace Mindset for Long-Term Success
-======================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for fostering a sustainable workplace mindset that can contribute to long-term success. These strategies encompass various aspects of organizational culture, employee engagement, and leadership commitment.
 

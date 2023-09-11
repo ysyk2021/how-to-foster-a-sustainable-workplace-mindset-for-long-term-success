@@ -1,5 +1,4 @@
-Chapter 8: Staying Informed About Industry Trends and Best Practices
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of staying informed about industry trends and best practices in fostering a sustainable workplace mindset for long-term success. By keeping up with the latest developments, organizations can adapt their strategies, stay competitive, and drive continuous improvement in sustainability.
 

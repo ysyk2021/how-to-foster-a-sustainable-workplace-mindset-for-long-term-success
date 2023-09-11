@@ -1,5 +1,4 @@
-Chapter 6: Recognizing and Rewarding Sustainable Behaviors
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of recognizing and rewarding sustainable behaviors in fostering a sustainable workplace mindset for long-term success. By acknowledging and incentivizing sustainable actions, organizations can motivate employees, reinforce positive behavior, and create a culture that values sustainability.
 

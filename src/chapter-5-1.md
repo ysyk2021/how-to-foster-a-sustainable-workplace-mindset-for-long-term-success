@@ -1,5 +1,4 @@
-Chapter 8: Reducing Waste and Resource Consumption
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for reducing waste and resource consumption in the workplace. By implementing these strategies, organizations can minimize their environmental impact, enhance operational efficiency, and foster a sustainable workplace mindset for long-term success.
 

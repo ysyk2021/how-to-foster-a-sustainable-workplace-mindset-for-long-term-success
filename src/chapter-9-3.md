@@ -1,5 +1,4 @@
-Chapter 14: Looking Ahead to the Future of a Workforce that Prioritizes Sustainability
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the future of a workforce that embraces sustainability as a core value. As organizations strive for long-term success and a positive impact on the environment and society, it is crucial to envision the future of work and the role sustainability will play in shaping it.
 

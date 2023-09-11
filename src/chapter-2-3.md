@@ -1,5 +1,4 @@
-Chapter 10: Examples of Successful Sustainability Initiatives in Practice
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore real-world examples of successful sustainability initiatives implemented by organizations across various sectors. These initiatives serve as inspiration and demonstrate the positive impact that sustainable practices can have on long-term success.
 

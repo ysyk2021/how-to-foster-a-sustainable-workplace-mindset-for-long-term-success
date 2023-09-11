@@ -1,5 +1,4 @@
-Chapter 16: Addressing Challenges and Setbacks
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of addressing challenges and setbacks when fostering a sustainable workplace mindset for long-term success. Sustainable initiatives can face various obstacles and setbacks along the way, but by proactively addressing these challenges, organizations can overcome them and stay on track towards their sustainability goals.
 

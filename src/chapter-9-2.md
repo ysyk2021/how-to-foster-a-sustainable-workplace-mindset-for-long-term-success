@@ -1,5 +1,4 @@
-Chapter 13: Addressing New Challenges in Promoting Sustainability
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the emerging challenges that organizations face in promoting sustainability and discuss strategies to address them. As businesses navigate a rapidly changing landscape, it is essential to stay proactive and adaptive in fostering a sustainable workplace mindset.
 

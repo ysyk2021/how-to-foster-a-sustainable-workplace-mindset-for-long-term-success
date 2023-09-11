@@ -1,5 +1,4 @@
-Chapter 12: Innovations in Fostering a Sustainable Workplace Mindset
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various innovative approaches and technologies that can be leveraged to foster a sustainable workplace mindset. These advancements enable organizations to embrace sustainability in creative ways and drive long-term success through enhanced efficiency, reduced environmental impact, and improved employee engagement.
 

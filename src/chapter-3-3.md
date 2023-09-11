@@ -1,5 +1,4 @@
-Chapter 9: The Risks to Reputation, Employee Engagement, and Profitability
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the risks that organizations face when they neglect to foster a sustainable workplace mindset. These risks can impact their reputation, employee engagement, and ultimately, their profitability. Understanding these risks is crucial for organizations to realize the importance of sustainability and take proactive measures to mitigate them.
 

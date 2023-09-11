@@ -1,5 +1,4 @@
-Chapter 10: The Costs of Unsustainable Practices
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the costs and negative impacts associated with unsustainable practices in the workplace. Understanding these costs is crucial for organizations to recognize the financial, environmental, and social implications of their actions. By highlighting the true costs of unsustainable practices, organizations can make informed decisions and prioritize sustainability for long-term success.
 
